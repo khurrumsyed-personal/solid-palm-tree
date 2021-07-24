@@ -8,5 +8,3 @@ My first commit
 jk;kj;kjklj
 
 ;iyouyouy
-
-6545464654654
